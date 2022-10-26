@@ -10,6 +10,6 @@ https://ann.nl.tab.digital/s/6yDoaERF6KSxRX4
 
 4. Enjoy the amazing demo!
 
-Don't forget to support my YouTube channel by subscribing!
+# Don't forget to support my YouTube channel by subscribing and watching content!
 https://www.youtube.com/c/SilentGamePLS/
 # SilentGamePLS
